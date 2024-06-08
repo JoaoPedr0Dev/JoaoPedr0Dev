@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do JoaoPedr0Dev 😁
+## Bem-vindo(a) ao perfil de JoaoPedr0Dev!
 
  <div>
    <a href="https://github.com/JoaoPedr0Dev">
